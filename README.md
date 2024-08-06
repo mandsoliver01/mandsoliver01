@@ -13,6 +13,8 @@ Ultimamente estou assim:
 ![](https://c.tenor.com/YGN0bKuAHb4AAAAM/mc-poze-puto.gif)
 
 
+
+
 Adoro cozinhar, mando mt bem na cozinha viu, mãe é tchop 10 😘👌
 
 ![](https://media1.giphy.com/media/nqtA5obHo3CSelfeKS/giphy.gif)
