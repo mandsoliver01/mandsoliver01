@@ -19,7 +19,3 @@ Adoro cozinhar, mando mt bem na cozinha viu, mãe é tchop 10 😘👌
 
 ![](https://media1.giphy.com/media/nqtA5obHo3CSelfeKS/giphy.gif)
 
-
-Queria dizer que sinto falta da pessoa pela qual me apaixonei em abril, e faria de tudo pra ter ela de volta...
-
-![](https://th.bing.com/th/id/OIP.PGO2EbYrzEYUC_JnYvZvTgAAAA?rs=1&pid=ImgDetMain)
