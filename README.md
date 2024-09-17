@@ -21,4 +21,5 @@ Adoro cozinhar, mando mt bem na cozinha viu, mãe é tchop 10 😘👌
 
 amo minha mulher, a Mércia 
 
-https://media.tenor.com/NaJMw7pMLbcAAAAC/in-love-donald-duck.gif
+![]![image](https://github.com/user-attachments/assets/b6d0f88d-c370-43a7-826d-b0f01ba9b57a)
+
