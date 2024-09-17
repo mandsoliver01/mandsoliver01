@@ -19,3 +19,6 @@ Adoro cozinhar, mando mt bem na cozinha viu, mãe é tchop 10 😘👌
 
 ![](https://media1.giphy.com/media/nqtA5obHo3CSelfeKS/giphy.gif)
 
+amo minha mulher, a Mércia 
+
+https://media.tenor.com/NaJMw7pMLbcAAAAC/in-love-donald-duck.gif
